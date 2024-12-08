@@ -1,1 +1,1 @@
-Do you lke cats? If yes, this ai is purrrfect to you.  
+Do you like cats? If yes, this ai is purrrfect to you.  
